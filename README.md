@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on Data Science projects
 - 📫 How to reach me meenadpmd@gmail.com
 
-I love it when people talk to me, so feel free to reach out. I almost up for anything! 
+I love it when people talk to me, so feel free to reach out. I am almost up for anything! 
 meenadpmd/meenadpmd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
